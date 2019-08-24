@@ -1,5 +1,5 @@
 Here's my lucid blog post:
-https://lucid.blog/yongtune/post/1566590192  
+https://lucid.blog/yongtune/post/1566665089
 
 
 Here's my twitter flutterwave shout out:
